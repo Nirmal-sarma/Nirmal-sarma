@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **nehalsarma6@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XhfvZ-3zOQJHx-fFdoxdYHcJpnYMr-f4/view?usp=sharing](https://drive.google.com/file/d/1XhfvZ-3zOQJHx-fFdoxdYHcJpnYMr-f4/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1_Uh8sh1NSZMsl_cyo7G7bhBlXHI45m3w/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
