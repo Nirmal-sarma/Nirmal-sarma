@@ -1,3 +1,4 @@
+[![An image of @nirmalsarma's Holopin badges, which is a link to view their full Holopin profile](https://holopin.me/nirmalsarma)](https://holopin.io/@nirmalsarma)
 <h1 align="center">Hi 👋, I'm Nirmalendu Sarma</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=nirmal-sarma&label=Profile%20views&color=0e75b6&style=flat" alt="nirmal-sarma" /> </p>
 
