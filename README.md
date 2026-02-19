@@ -4,7 +4,7 @@
 
 - 💬 Ask me about **DSA, Design, Database**
 
-- 📫 How to reach me **nehalsarma6@gmail.com**
+- 📫 How to reach me **nirmalendusarma8@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1vhEXvGVtkphYfuQa1BzC3yGFHk1fVcHY/view?usp=sharing]
 
